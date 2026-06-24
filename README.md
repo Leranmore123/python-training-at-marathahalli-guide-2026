@@ -1,4 +1,4 @@
-# Python Training At Marathahalli: The Complete Guide for 2026 — Updated June
+# Python Training At Marathahalli Mastery — Edition #1 (2026)
 
 Best Python Training at Marathahalli — Complete Guide 2026
 
