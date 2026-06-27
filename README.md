@@ -1,4 +1,4 @@
-# Python Training At Marathahalli Mastery — Edition #1 (2026)
+# The 1-Step Python Training At Marathahalli Blueprint for 2026
 
 Best Python Training at Marathahalli — Complete Guide 2026
 
